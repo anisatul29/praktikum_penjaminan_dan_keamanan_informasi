@@ -1,1 +1,0 @@
-# praktikum_penjaminan_dan_keamanan_informasi
